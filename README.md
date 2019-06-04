@@ -1,0 +1,2 @@
+# szkolenie
+szkolenie w pracy
